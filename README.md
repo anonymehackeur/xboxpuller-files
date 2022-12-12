@@ -11,6 +11,9 @@ To run the file all you have to do is double click the 'The Xbox puller' file.
 **IMPORTANT**
 You may need to re-name the file to 'xboxpuller files' as it may save as 'xboxpuller files-main' because winrar saves it as '-main' for some reason.
 
+Link to layer4_ddos creators github page -->https://github.com/billythegoat356<--
+
+![image2](https://user-images.githubusercontent.com/117538886/206947816-d881432b-16bf-4be4-893c-65c9984e2f2e.jpg)
 
 **PASSWORDS**
 Xbox puller username: admin
