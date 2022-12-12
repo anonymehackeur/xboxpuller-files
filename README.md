@@ -28,14 +28,14 @@ THIS SOFTWARE IS PROVIDED FOR EDUCATIONAL USE ONLY! IF YOU ENGAGE IN ANY ILLEGAL
 **AND LAST THING!!!**
 
 
-                    **SUB TO MY CHANNEL**
+                    SUB TO MY CHANNEL
 **==================================================**
 
 **-->https://www.youtube.com/channel/UCkP2YjZfvZIfArYbAUyRLsg<--**
 
 **==================================================**
 
-                 **🌐PLEASE VISIT MY WEBSITE🌐**
+                 🌐PLEASE VISIT MY WEBSITE🌐
 **==================================================**
 
 **----->https://123xboxlookup.000webhostapp.com<----------**
